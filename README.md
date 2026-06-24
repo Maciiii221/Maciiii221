@@ -1,4 +1,4 @@
-Hi, I'm M Asif Chishti 👋
+Hi, I'm Mohammad Asif Chishti 👋
 
 MS Computer Science Researcher
 
